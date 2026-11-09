@@ -1,1 +1,0 @@
-# guia_experimental_3
